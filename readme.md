@@ -6,6 +6,7 @@
 Так же заходите и на сам сервер ПФ3
 https://discord.gg/3BF7ZemKuK
 > axi sussy boi
+> можете и на мой серв зайти пж https://discord.gg/jUZqEZxr
 
 
 
