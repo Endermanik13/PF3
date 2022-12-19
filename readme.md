@@ -4,7 +4,7 @@
 ***ЕСЛИ КТО ХОЧЕТ ПОМОЧЬ С ИГРОЙ ПИШИТЕ МНЕ В ДИСКОРД***
 > Endermanik13#9517
 Так же заходите и на сам сервер ПФ3
-https://discord.gg/3BF7ZemKuK
+https://discord.gg/sS8PHquUFU
 > axi sussy boi
 > можете и на мой серв зайти пж https://discord.gg/jUZqEZxr
 ![Icon](https://github.com/Endermanik13/PF3/blob/main/main%20menu.png)
